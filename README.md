@@ -14,6 +14,6 @@ I am currently  working as a developer for Accurics, where I like working with m
 
 **About Me:**
 
-- 📝 [My Resume](https://drive.google.com/drive/u/0/my-drive)
+- 📝 [My Resume](https://drive.google.com/file/d/1IaeJ3cRb4KM0RKZkfCjurFtEA0WI1xbw/view?usp=sharing)
 - 💬 [My LinkedIn Profile](https://www.linkedin.com/in/shreyas-phansalkar-shrep20/)
 - 💻 Feel free to connect to me about any of my interests, I'll be happy to help
